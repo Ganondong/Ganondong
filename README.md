@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming, sleeping and working out 
 - 🌱 I’m currently learning nothing much 
 - 💞️ I’m looking to collaborate on stuff if I get the chance
-- 📫 How to reach me ...
+- 📫 How to reach me Insta: Voided_Vessel. Snap: Valiant_being
 
 <!---
 Ganondong/Ganondong is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
